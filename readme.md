@@ -6,7 +6,7 @@
 <br>
 <br>
 <br>
-—————— Loathe the repetition of tedious work. Mankind should pursue innovation and breakthrough. ——————
+ Loathe the repetition of tedious work. Mankind should pursue innovation and breakthrough.
 <br>
 <br>
 <br>
