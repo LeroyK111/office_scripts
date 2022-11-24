@@ -6,6 +6,10 @@
 <br>
 <br>
 <br>
+—————— Loathe the repetition of tedious work. Mankind should pursue innovation and breakthrough. ——————
+<br>
+<br>
+<br>
 
 ## 1.常用办公软件自动化
 word自动化脚本；
